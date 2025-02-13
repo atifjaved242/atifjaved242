@@ -8,7 +8,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/atif-javed-097b18251/](https://www.linkedin.com/in/atif-javed-097b18251/)
 
-- ⚡ Fun fact **I am Passionate**
+- ⚡ Did You Know? **I am Passionate**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
